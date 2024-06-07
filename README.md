@@ -19,3 +19,5 @@
 ![](https://github.com/KMORaza/Spanish-Language-Notes/blob/main/Pictures/019.jpg)
 ![](https://github.com/KMORaza/Spanish-Language-Notes/blob/main/Pictures/020.jpg)
 ![](https://github.com/KMORaza/Spanish-Language-Notes/blob/main/Pictures/021.jpg)
+![](https://github.com/KMORaza/Spanish-Language-Notes/blob/main/Pictures/022.jpg)
+![](https://github.com/KMORaza/Spanish-Language-Notes/blob/main/Pictures/023.jpg)
